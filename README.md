@@ -6,5 +6,5 @@
 
 - Continuously growing my coding knowledge ✍🏼
 - Using my coding skills to promote environmental awareness 🌱
-- Jumpstarting my freelance web development business on <a href="https://www.linkedin.com/company/xyradaguilar/?viewAsMember=true">LinkedIn</a> 💼
+- Check out my <a href="https://www.linkedin.com/company/xyradaguilar/?viewAsMember=true">LinkedIn</a> 💼
  
