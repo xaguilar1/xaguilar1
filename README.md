@@ -5,7 +5,7 @@
 ## About me: <img align="left" width="150" height="150" src="https://user-images.githubusercontent.com/65522080/147528988-9d227428-8871-481d-b660-463a7a63b5a7.png"> [![Linkedin: Xyra Arroyo](https://img.shields.io/badge/-Xyra-blue?style=flat-square&logo=Linkedin&logoColor=white)](https://www.linkedin.com/in/xarroyo1)
 
 
-- Continuously growing my coding knowledge ✍🏼
+- Expanding upon my coding knowledge ✍🏼
 - Using my coding skills to promote environmental awareness 🌱
-- Continuously learning & working 💼
+- Continuously learning & working to understand various departments and backgrounds 💼
  
