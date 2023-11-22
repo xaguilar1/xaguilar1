@@ -7,5 +7,5 @@
 
 - Continuously growing my coding knowledge ✍🏼
 - Using my coding skills to promote environmental awareness 🌱
-- Check out my <a href="https://www.linkedin.com/company/xyradaguilar/?viewAsMember=true">LinkedIn</a> 💼
+- Continuously learning & working 💼
  
